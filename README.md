@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @crownedoak
+- 👀 I’m interested in AI
+- 🌱 I’m currently learning anything and everything.
+- 💞️ I’m looking to collaborate on AI research, specifically regarding moral standards.
+- 📫 How to reach me cecelia@crownedoak.com
